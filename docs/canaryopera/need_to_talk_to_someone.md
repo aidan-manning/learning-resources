@@ -1,8 +1,9 @@
 # Emergency.  Are worried you might hurt yourself or someone else ? 
+
 Please get IMMEDIATE HELP if this applies to you. CALL 911 or your [local emergency response service](https://travel.state.gov/content/dam/students-abroad/pdfs/911_ABROAD.pdf) or get to the nearest emergency hospital NOW.
 If you decide to call 911 or Emergency Medical Services, tell them exactly where you are calling from so they can come and talk to you.
 
-# Avoid an Emergency
+## Avoid an Emergency
 It is okay to not be okay. You can be a successful person with a loving family and supportive friends, but still be impacted by events and conditions that lead to a mental health condition requiring help. [Breaking the Stigma Around Suicide](https://kvoa.com/news/local-news/2020/09/15/breaking-the-stigma-around-suicide-tucson-woman-shares-her-touching-story/)
 
 ## Suicide is a big issue. 
@@ -46,7 +47,7 @@ StrongHearts Native Helpline 1-844-7NATIVE (762-8483) is a safe domestic, dating
 Cuando usted llama al número 1-888-628-9454, su llamada se dirige al centro de ayuda de nuestra red disponible más cercano.Tenemos actualmente 170 centros en la red y usted hablará probablemente con uno situado en su zona. El folleto es tamaño de bolsillo y se divide en cuatro paneles. Este folleto proporciona información de como reconocer las señales para ofrecer ayuda, y contiene el enlace al sitio web para mas recursos. [Suicide Prevention Brochure (Spanish) / Folleto para la prevención del suicidio.](https://emmresourcecenter.org/resources/suicide-prevention-brochure-spanish-folleto-para-la-prevencion-del-suicidio).
 
 ## United States 
-[Talk to Someone Now](https://suicidepreventionlifeline.org/talk-to-someone-now/) The Lifeline is available for everyone, is free, and confidential.  [Lifelife Chat](https://suicidepreventionlifeline.org/chat/) centers in the Lifeline network are accredited by CONTACT USA. [Lifeline Chat is available 24/7 across the U.S.]((https://suicidepreventionlifeline.org/chat/)
+[Talk to Someone Now](https://suicidepreventionlifeline.org/talk-to-someone-now/) The Lifeline is available for everyone, is free, and confidential.  [Lifelife Chat](https://suicidepreventionlifeline.org/chat/) centers in the Lifeline network are accredited by CONTACT USA. [Lifeline Chat is available 24/7 across the U.S.](https://suicidepreventionlifeline.org/chat/)
 
 If you or someone you know is in crisis, you can also use the [National Suicide Prevention Lifelife](https://suicidepreventionlifeline.org/help-someone-else/). Never keep it a secret if a friend tells you about a plan to hurt themselves. Call 1-800-273-TALK (8255) so that you can find out what resources are available in your area, or encourage your loved one to call. Calls are routed to the Lifeline center closest to your area code that can provide you with local resources.
 
